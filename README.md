@@ -1,1 +1,1 @@
-# GO LANG CODE OF HITESH CHOUDHARY GO LANG PLAYLIST
+# GO LANG CODE (#[anchor-name](https://www.youtube.com/watch?v=JoJ8Sw5Yb4c&list=PLRAV69dS1uWQGDQoBYMZWKjzuhCaOnBpa&index=1))
